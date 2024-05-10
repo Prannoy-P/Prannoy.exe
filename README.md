@@ -1,1 +1,0 @@
-# Prannoy.exe
